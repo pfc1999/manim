@@ -1,0 +1,1 @@
+cutie mark https://www.deviantart.com/spare1111/art/Cutie-Marks-352704879
